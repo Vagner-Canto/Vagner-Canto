@@ -1,4 +1,4 @@
-- 👋 Buenas! Sou o @Vagner-Canto
+- 👋 Sou o @Vagner-Canto
 - 👀 Interesse em automação de rotinas 
 - 🌱 Estudante de ciências contábeis 
 - 💞️ Posso colaborar com ideias e mão na massa!
